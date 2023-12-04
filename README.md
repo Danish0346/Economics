@@ -1,0 +1,2 @@
+# Economics
+Economics is Good
